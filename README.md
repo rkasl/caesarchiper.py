@@ -1,0 +1,1 @@
+wadehel apa ini cok
